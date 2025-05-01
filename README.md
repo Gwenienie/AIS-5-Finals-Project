@@ -1,0 +1,1 @@
+Note: Some files were added shortly after the deadline due to difficulty understanding part of the task and having problem with internet and laptop. I was still determined to finish it correctly. I appreciate your understanding.
